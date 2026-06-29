@@ -1,0 +1,2 @@
+# fc4df356ad2fb167-church-ministry-meeting-schedu
+The fastest way to have the information you need right in your browser. No setup fees. No learning curve.  Privacy-first: all processing stays local, no data sent to third-party servers. Under 1MB. Zero performance impact on browser speed.  ## What's Included  - Church Ministry Meeting Scheduler And Notes Organizer — fully configured and ready to u
